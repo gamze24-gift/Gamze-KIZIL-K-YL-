@@ -1,4 +1,4 @@
-# Gamze-KIZIL-K-YL-
+# Gamze-KIZIL
 My personal GitHub profile
 ## 👋 Hi, I'm Gamze!
 
